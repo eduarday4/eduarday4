@@ -10,6 +10,6 @@
 
  Sccp
 
-Seja o piloto de suas histórias e vo o mais alto que consegui.
+Seja o piloto de suas histórias e voe o mais alto que consegui.
  
 
